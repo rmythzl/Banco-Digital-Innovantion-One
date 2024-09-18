@@ -7,7 +7,7 @@
 
 ## 🕵️‍♂️ **Bem-vindo a Helix Dynamics!**
 
-Espero que esteja tendo um otimo dia, nosso criador @rmythxl Agradece toda sua colaboração a nossos projetos! A Helix Dynamics tem o prazer de apresentar seu novo Banco Digital, um sistema bancário projetado para os mais audaciosos. Prepare-se para explorar um universo financeiro onde tecnologia e mistério se encontram.
+Espero que esteja tendo um otimo dia, nosso criador @rmythzl Agradece toda sua colaboração a nossos projetos! A Helix Dynamics tem o prazer de apresentar seu novo Banco Digital, um sistema bancário projetado para os mais audaciosos. Prepare-se para explorar um universo financeiro onde tecnologia e mistério se encontram.
 
 ---
 
