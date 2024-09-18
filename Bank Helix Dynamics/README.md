@@ -1,4 +1,3 @@
-Entendido! Vamos criar um README com um estilo mais sombrio e enigmático, inspirado na estética da Batcaverna. Utilizaremos uma formatação que remete a um ambiente misterioso e sofisticado, com um toque de intriga e charme.
 
 ---
 
